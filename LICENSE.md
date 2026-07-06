@@ -1,4 +1,4 @@
-# 
+# Premium scalping trading bot flujo de trabajo for Mac OS | Último scalping trading bot flujo de trabajo for PC Windows. Featuring pools de liquidez DEX and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
